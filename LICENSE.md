@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://ProtectorRush.github.io/screenflow-for-mac-yw66/ ) |
  |---------------------|----------------------:|
 
 
